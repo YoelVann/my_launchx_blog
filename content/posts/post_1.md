@@ -11,3 +11,5 @@ Ha sido una maravillosa aventura, de volver unas líneas de código, a darle vid
 El desarrolllo de sotfware no sólo se centra en escribi código, es saber hacia dónde ir, tener un gran equipo aligera el viaje.
 
 Los mission commmanders de Innovacción Virtual hacen que sea divertido aprender! Me encanta éste On Boarding!
+
+✨ ¡Mi magia es no rendirme! 🍀
